@@ -1,2 +1,2 @@
 # Cyka-Blyat
-Tripalowsky
+Cyki Briky
